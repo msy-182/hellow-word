@@ -1,2 +1,2 @@
-# hellow-word
-say heelow-word to git
+i was to do something chang !
+ignor!
